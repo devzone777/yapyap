@@ -1,1 +1,5 @@
 # yapyap
+Skywire public chat room
+sdndsnvsdnnnnnnnnnnnnnnvjdsbvjbdsvbdljbvad
+djbcvkjdbvkjdbvjkddbvkjdbvjkadbvakjdbvkdbv
+bcjdkaadjkbcvasdjbcvjakdsdbcvakjasbvcjkaasb
